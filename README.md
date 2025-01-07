@@ -3,3 +3,5 @@
 
  -- The world is our family
  -- I make awesome decisions in bike stores!!!  Tue Jan  7 08:45:06 2025
+ 
+ -- I was just speaking with someone that told me their life story and they used to be homeless.  Tue Jan  7 08:50:50 2025
