@@ -28,3 +28,5 @@
  -- I care. I care about everything. Sometimes not giving a f#%k is caring the most.  Tue Jan  7 16:01:16 2025
  
  -- We're going to move the entire music industry into the 21st Century  Tue Jan  7 17:00:32 2025
+ 
+ -- Culture is the most powerful force in humanity under God  Tue Jan  7 18:00:25 2025
