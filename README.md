@@ -14,3 +14,5 @@
  -- I think I do myself a disservice by comparing myself to Steve Jobs and Walt Disney and human beings that we've seen before. It should be more like Willy Wonka...and welcome to my chocolate factory.  Tue Jan  7 09:00:39 2025
  
  -- Culture is the most powerful force in humanity under God  Tue Jan  7 10:00:32 2025
+ 
+ -- Sometimes I push the door close button on people running towards the elevator. I just need my own elevator sometimes. My sanctuary.  Tue Jan  7 11:00:23 2025
