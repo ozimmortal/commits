@@ -16,3 +16,5 @@
  -- Culture is the most powerful force in humanity under God  Tue Jan  7 10:00:32 2025
  
  -- Sometimes I push the door close button on people running towards the elevator. I just need my own elevator sometimes. My sanctuary.  Tue Jan  7 11:00:23 2025
+ 
+ -- I don't expect to be understood at all.  Tue Jan  7 12:00:35 2025
