@@ -10,3 +10,5 @@
 
  
  -- I wish I had a friend like me  Tue Jan  7 08:55:51 2025
+ 
+ -- I think I do myself a disservice by comparing myself to Steve Jobs and Walt Disney and human beings that we've seen before. It should be more like Willy Wonka...and welcome to my chocolate factory.  Tue Jan  7 09:00:39 2025
