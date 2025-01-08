@@ -88,3 +88,5 @@
  -- Perhaps I should have been more like water today  Wed Jan  8 21:00:25 2025
  
  -- I love sleep; it's my favorite.  Wed Jan  8 22:00:27 2025
+ 
+ -- Sometimes I push the door close button on people running towards the elevator. I just need my own elevator sometimes. My sanctuary.  Wed Jan  8 23:00:28 2025
