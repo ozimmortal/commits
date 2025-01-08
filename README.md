@@ -82,3 +82,5 @@
  -- 2024  Wed Jan  8 18:00:41 2025
  
  -- I make awesome decisions in bike stores!!!  Wed Jan  8 19:00:24 2025
+ 
+ -- You basically can say anything to someone on an email or text as long as you put LOL at the end.  Wed Jan  8 20:00:25 2025
