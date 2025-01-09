@@ -130,3 +130,5 @@
  -- Have you ever thought you were in love with someone but then realized you were just staring in a mirror for 20 minutes?  Thu Jan  9 18:00:24 2025
  
  -- Believe in your flyness...conquer your shyness.  Thu Jan  9 19:00:24 2025
+ 
+ -- People always say that you can't please everybody. I think that's a cop-out. Why not attempt it? Cause think of all the people that you will please if you try.  Thu Jan  9 20:00:25 2025
