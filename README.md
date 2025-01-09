@@ -114,3 +114,5 @@
  -- We are here to complete the revolution. We are building the future  Thu Jan  9 10:00:37 2025
  
  -- Burn that excel spread sheet  Thu Jan  9 11:00:22 2025
+ 
+ -- So many of us need so much less than we have especially when so many of us are in need  Thu Jan  9 12:00:36 2025
