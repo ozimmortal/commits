@@ -124,3 +124,5 @@
  -- Two years ago we had 50 million people subscribed to music streaming services around the world. Today we have 400 million.  Thu Jan  9 15:00:24 2025
  
  -- We're going to move the entire music industry into the 21st Century  Thu Jan  9 16:00:30 2025
+ 
+ -- Keep squares out yo circle  Thu Jan  9 17:00:26 2025
