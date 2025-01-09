@@ -108,3 +108,5 @@
  -- I am Warhol. I am the No. 1 most impactful artist of our generation. I am Shakespeare in the flesh.  Thu Jan  9 07:00:22 2025
  
  -- People always tell you 'Be humble. Be humble.' When was the last time someone told you to be amazing? Be great! Be awesome! Be awesome!  Thu Jan  9 08:00:25 2025
+ 
+ -- Truth is my goal. Controversy is my gym. I'll do a hundred reps of controversy for a 6 pack of truth  Thu Jan  9 09:00:24 2025
