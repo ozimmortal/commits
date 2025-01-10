@@ -138,3 +138,5 @@
  -- My memories are from the future  Thu Jan  9 22:00:27 2025
  
  -- There's a crying need for civility across the board. We need to and will come together in the name of Jesus.  Thu Jan  9 23:00:27 2025
+ 
+ -- People always tell you 'Be humble. Be humble.' When was the last time someone told you to be amazing? Be great! Be awesome! Be awesome!  Fri Jan 10 00:00:44 2025
