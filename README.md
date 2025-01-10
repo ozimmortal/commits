@@ -140,3 +140,5 @@
  -- There's a crying need for civility across the board. We need to and will come together in the name of Jesus.  Thu Jan  9 23:00:27 2025
  
  -- People always tell you 'Be humble. Be humble.' When was the last time someone told you to be amazing? Be great! Be awesome! Be awesome!  Fri Jan 10 00:00:44 2025
+ 
+ -- Have you ever thought you were in love with someone but then realized you were just staring in a mirror for 20 minutes?  Fri Jan 10 01:00:27 2025
